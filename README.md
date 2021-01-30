@@ -1,2 +1,2 @@
-# techdigi
-www.tech-digi.com
+#All Apple Fix
+www.allapplefix.cf
